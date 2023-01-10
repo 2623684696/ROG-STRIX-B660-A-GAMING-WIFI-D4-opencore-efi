@@ -1,0 +1,1 @@
+# ROG-STRIX-B660-A-GAMING-WIFI-D4-opencore-efi
